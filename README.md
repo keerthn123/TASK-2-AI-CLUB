@@ -1,6 +1,6 @@
 # Task2_AICLUB
 -----
-## Yo peep,
+## Yo Peep,
 ----
 Proud of you since you are trying so hard. Keep up the good work!
 🐥🐥🐥🐥🐥🐥🐥🐥🐥🐥🐥 \
